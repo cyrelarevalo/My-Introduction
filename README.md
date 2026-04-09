@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @cyrelarevalo
-- Intrested in coding/ projects
+- Interested in coding/ projects
 - currently learning / student
 - I’m looking to collaborate on have patients especially on projects
 - project email: cyrelarevalo20@gmail.com
