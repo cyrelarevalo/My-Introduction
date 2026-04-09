@@ -2,7 +2,7 @@
 - Intrested in coding/ projects
 - currently learning / student
 - I’m looking to collaborate on have patients especially on projects
-- kiraizaac@gmail.com
+- project email: cyrelarevalo20@gmail.com
 
 <!---
 cyrelarevalo/cyrelarevalo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
